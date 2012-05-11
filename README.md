@@ -76,3 +76,27 @@ Plötzlich geschah etwas was ich nie erwartet hätte. Marco sagte: "Vicky. Ich w
 heute haben. Mit dir!" Zu Begin war ich sehr erschrocken; so eine Sprache und Offenheit war ich nicht von ihm gewohnt.
 "Egal ob du jetzt ja oder nein sagst. Ich werde keinem etwas erzählen, was in diesem Urlaub passiert ist." fügte er hinzu.
 Leise flüsterte ich ihm entgegen "Ok" und küsste seine Hoden.
+Kaum hatte er das "Ja" ausgesprochen zog ich ihm die Badehose runter. Wie schon an der Beule zu erkennen, hatte sein Schwanz sich schon halb aufgestellt.
+Ich sprühte einwenig Bodylotion auf seinen Schaft und seine Hoden und began sie einzucremen.
+Zuerst langsam über seine Hoden; sie waren sehr schnell hart. Wie auch ich war Marco ganz rasiert.
+Ich massierte seinen Schaft mit kleinen auf und ab Bewegungen. Er stand wie eine eins in die Luft. Schon lange war die Bodylotion eingezogen und es war 
+kein eincremen mehr. Ich spielte mit seiner Vorhaut und streichelte seine Hoden.
+Plötzlich geschah etwas was ich nie erwartet hätte. Marco sagte: "Vicky. Ich würde so gerne mit dir hier und jetzt ficken. Ich möchte mein erstes mal
+heute haben. Mit dir!" Zu Begin war ich sehr erschrocken; so eine Sprache und Offenheit war ich nicht von ihm gewohnt.
+"Egal ob du jetzt ja oder nein sagst. Ich werde keinem etwas erzählen, was in diesem Urlaub passiert ist." fügte er hinzu.
+Leise flüsterte ich ihm entgegen "Ok" und küsste seine Hoden.
+Langsam küsste ich mich nach oben und küsste seine Eichel. Dann nahm ich ihn in den Mund und fing an ihm einen zu blasen.
+Nach 2-3 Minuten zog ich seinen Schwanz aus dem Mund und stellte fest, dass er extrem hart geworden ist.
+"Ohh Tante Vicky. Das war geil. Hast du Kondome dabei?"
+Ich antwortete: "Ja, aber wenn du willst können wir es ohne machen. Die Pille nehm ich auf jeden Fall!"
+Ich stand auf und wartete auf seine Antwort. Er streichelte meine Beininnenseite, ging weiter nach oben, strich über meine schamlippen und sagte:
+"Ok, vielleicht passt er auch besser ohne rein."
+Ich hielt seine Hand an meinen Schamlippen fest, setzte mich neben ihn und antwortete: "Klar. Aber fest zustoßen musst du auf jeden Fall; ich bin
+nämlich relativ eng. Aber das werde ich dir nacher nochmal sagen."
+Ich legte mich auf den Rücken, spreizte meine Beine und sagte: "Mach mich richtig feucht!..... Und sag mir was du gleich dreckiges mit mir anstellen möchtest"
+Marco hatte seine Hand immer noch auf meinen Schamlippen. Er beugte sich vor mich und küsste sie.
+"Vicky....Wenn du mir zeigst... wo und wie ich meinen harten Schwanz in dich rein stecken soll, dann..." er spreizte meine Schamlippen, fuhr mit der Zunge hindurch
+und über meinen Kitzler. "Ohh" stöhnte ich "Dann?"
+Er: "Dann werde ich ihn nie wieder raus nehmen und dich solange in deine enge Muschi ficken" er leckte 2x stark über meinen Kitzler "bis du kommst".
+Ich zitterte am ganzen Körper; ich kann es nicht glauben: Ich liege nackt vor meinem Neffen, der mich leckt und gleichzeitig seine Vorhaut 2x langsam vor und
+zurück gezogen hat.
